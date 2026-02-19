@@ -192,7 +192,7 @@ Photo of email evidence is attached to the left column, labelled “image1”.
 
 * **2022-05-06 {Susan Hamblin}:** High Court (Mr Justice Nicklin) accepts joint statement in Hamblin’s libel/data protection claim against The Sun: allegations “entirely untrue,” Hamblin had no involvement in U.S. legal claims reported. The Sun apologizes publicly, pays substantial damages and costs (Carter-Ruck represented her; Statement in Open Court read May 6, 2022).
 
-* **2023 {Zorro Ranch}**: Epstein’s former Zorro Ranch sold to Don Huffines (Trump-linked Texas businessman).
+* **2023-04-04 {Stephen Deckoff}**: Stephen Deckoff purchased Epstein's Island and it's neighboring islands in May for $60,000,000 of SD investments (Founder of Black Diamond Capital Management). It was orginally listed for $125,000,000 to settle lawsuits, but it was reduced after no buyers were interested.
 
 * **2025–11–19 {U.S.}**: President Trump signs Epstein Files Transparency Act into law.
 
@@ -247,6 +247,8 @@ Photo of email evidence is attached to the left column, labelled “image1”.
 * **2026-02 {Multiple European Countries}:** France, Norway, Germany, Poland, Lithuania, Latvia, Slovakia, Turkey, Ireland, Sweden all have active or assessing probes into Epstein connections (The Independent February 16, 2026). France re-opened investigation and raided Arab World Institute (former head Jack Lang) February 14–16, 2026\.
 
 * **2026–02–16 {New Mexico}**: New Mexico House unanimously passes resolution establishing “Truth Commission” investigative subcommittee (bipartisan: 4 reps from each party, subpoena power, seeks survivor/local testimony, identifies guests/officials, 2–2.5 million dollar budget from 2023 Deutsche Bank settlement, interim report by July 31, 2026, final by year-end, first meeting February 17, 2026).
+
+* **2026–02–18 {New Mexico}**: Don Huffines announces that he will be turning Zorro ranch into a Christian retreat & renamed it to " Rancho de San Rafael."
 
 * **2026-02-18 {Peter Mandelson}:** Peter Mandelson resigns from the House of Lords due to friendship with Jeffrey Epstein
 
