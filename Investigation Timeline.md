@@ -238,9 +238,11 @@ Photo of email evidence is attached to the left column, labelled “image1”.
 
 * **2026-02-06 {Karyna Shuliak}:** Karyna Shuliak (dentist) helped arrange a trip to Southeast Asia to “find a new girlfriend for Epstein” per Pritzker email in files (email highlighted February 6, 2026 coverage).
 
+* **2026–02–10 {New Mexico}**: New Mexico Land Commissioner Stephanie Garcia Richard urges state/federal law enforcement to investigate 2019 anonymous encrypted email (sent to radio host Eddy Aragon) alleging two foreign girls strangled during “rough fetish sex” and buried “in the hills outside Zorro” on orders from Jeffrey Epstein and “Madam G” (Ghislaine Maxwell), sender claims former ranch staff member with videos as “insurance.”
+
 * **2026-02-11 {David Gelernter}:** Yale removes David Gelernter (Yale computer science professor) from teaching February 11, 2026 while reviewing conduct after Epstein emails surfaced.
 
-* **2026–02–10 {New Mexico}**: New Mexico Land Commissioner Stephanie Garcia Richard urges state/federal law enforcement to investigate 2019 anonymous encrypted email (sent to radio host Eddy Aragon) alleging two foreign girls strangled during “rough fetish sex” and buried “in the hills outside Zorro” on orders from Jeffrey Epstein and “Madam G” (Ghislaine Maxwell), sender claims former ranch staff member with videos as “insurance.”
+* **2026–02–11 {Jmail}**: The Economist worked with Riley Walz & Luke Igel to process 1.4 million emails. It was launched in November 2025 & finalized on Feb 11, 2026. The Economist is 27% owned by the Rothschilds. Riley walz launched a project that tracked San Francisco parking enforcement in real time a few years back, September 23, 2025. He's well known for his pranks. Luke Igel is a CEO of Kino, partnered with BasePoint Capital to develop & produce interactive films for theaters & home platforms through 2027.  
 
 * **2026-02-13 {Sultan Ahmed bin Sulayem}:** Sultan Ahmed bin Sulayem resigned as chairman and CEO of DP World (Dubai-based logistics giant) amid fallout from DOJ Epstein file releases revealing his yearslong friendship and explicit email exchanges with Epstein. DP World appointed new leadership. (Public announcement February 13, 2026; tied to DOJ tranches January 30–February 2026).
 
