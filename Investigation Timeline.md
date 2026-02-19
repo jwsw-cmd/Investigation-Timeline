@@ -250,7 +250,7 @@ Photo of email evidence is attached to the left column, labelled “image1”.
 
 * **2026-02-18 {Peter Mandelson}:** Peter Mandelson resigns from the House of Lords due to friendship with Jeffrey Epstein
 
-* **2026-02-19 {Andrew Mountbatten-Windsor}:** Andrew Mountbatten-Windsor arrested on suspicion of misconduct in public office over ties to Jeffrey Epstein
+* **2026-02-19 {Andrew Mountbatten-Windsor}:** Andrew Mountbatten-Windsor arrested on suspicion of misconduct in public office over ties to Jeffrey Epstein. He was released 11 hours later "under investigation."
 
 * **2026-02 {Ireland Gardaí}:** Gardaí weighing investigation into trafficking claims through Ireland (no formal probe launched as of February 19, 2026).
 
